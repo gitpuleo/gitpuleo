@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gitpuleo
-- 👀 I’m interested in utopian political projects
-- 🌱 I’m currently learning to survive under capitalism
+- 👀 I’m interested in french anthropologists
+- 🌱 I’m currently learning to javajavajava
 - 💞️ I’m looking to collaborate on the former
 - 📫 How to reach me ringring
 
